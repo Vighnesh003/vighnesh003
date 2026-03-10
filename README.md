@@ -104,7 +104,7 @@ B. N. Bandodkar College, University of Mumbai
 
 ## 📫 Connect With Me
 
-📧 Email: (Add your email here)  
+📧 Email: (vighneshkadavekar2020@gmail.com)  
 📱 Phone: 7208572592  
 
 🔗 LinkedIn  
